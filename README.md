@@ -6,6 +6,7 @@
 -  [![An image of @vedantjadhav258's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/vedantjadhav258)](https://holopin.io/@vedantjadhav258)
 -  ![image](https://github.com/VedantJadhav258/VedantJadhav258/assets/103189385/3f697b01-44ac-4c2a-98b2-7eb8df99948d)
 -  ![image](https://github.com/VedantJadhav258/VedantJadhav258/assets/103189385/2094fff9-be4f-40a6-8c88-f8b1229a83f5)
+-  [![An image of @vedantjadhav258's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/vedantjadhav258)](https://holopin.io/@vedantjadhav258)
 
 
 <!--
